@@ -1,0 +1,3 @@
+# Roblox-Script-Injector
+All the portable gamers are frequently hunting for all genre game at a single platform that keeps them attracts. For those Roblox is the ideal gaming spot. Roblox, the primary online 3D gaming stage for children and youngsters. It has in excess of 5.6 million clients and 5000 amusements are produced by the clients and diversion engineers. You should know two things to utilize Roblox, Exploit content and executer. Here we talk about How to Install Roblox Script Injector. There two kinds of Injectors. DLL and Roblox Lua content Injector. 
+http://robloxlogin.greatwebsitebuilder.com/roblox-tricks/roblox-script-injector
